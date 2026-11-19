@@ -59,7 +59,7 @@
 
 <div align="center">
 
-[**LinkedIn**](https://www.linkedin.com/in/YOUR_LINKEDIN) &nbsp;•&nbsp; [**Email**](mailto:YOUR_EMAIL@gmail.com) &nbsp;•&nbsp; [**Instagram**](https://instagram.com/YOUR_INSTAGRAM)
+[**LinkedIn**](https://www.linkedin.com/in/shivansh-tripathi-abbb2242a/)
 
 <br/>
 
